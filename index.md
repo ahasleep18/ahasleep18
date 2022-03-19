@@ -1,37 +1,11 @@
-## Welcome to GitHub Pages
+# 啊哈，请喝茶！
 
-You can use the [editor on GitHub](https://github.com/ahasleep18/ahasleep18/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
+![image](https://user-images.githubusercontent.com/101916182/159107227-a54d95a3-9736-4fb5-8462-259aa382951b.png)
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+![image](https://user-images.githubusercontent.com/101916182/159107235-4774f4e2-f7da-4efb-8cad-5be102202861.png)
 
-### Markdown
+![image](https://user-images.githubusercontent.com/101916182/159107357-e2d331e4-4188-4f85-a85c-8ebc9b808835.png)
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+## 参考
 
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/ahasleep18/ahasleep18/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+![Alt](https://repobeats.axiom.co/api/embed/85e34f84598562f2edfce961c9729c03527e0c95.svg "Repobeats analytics image")
