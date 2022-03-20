@@ -241,6 +241,15 @@
 
 最后傅师傅想跟你说：自己用心体会，适合自己的，适合眼前菜肴的，就是最好的酒水饮料。
 
+![image](https://user-images.githubusercontent.com/101916476/159160924-d1ddf36d-09a8-44bd-9f48-7bf17e7185c9.png)
+![image](https://user-images.githubusercontent.com/101916476/159160928-1e3a8661-2a11-4583-8239-501c71f84d06.png)
+![image](https://user-images.githubusercontent.com/101916476/159160929-8ea49394-385b-477a-bc0c-c48623a2a7ff.png)
+![image](https://user-images.githubusercontent.com/101916476/159160932-2480e01d-3f4c-47cc-bc51-1c442259532a.png)
+![image](https://user-images.githubusercontent.com/101916476/159160933-f5351711-0ee8-4b5f-ab0d-19fd50305a3d.png)
+![image](https://user-images.githubusercontent.com/101916476/159160935-3e66354a-85a7-402d-99dd-802c9d5b09b1.png)
+![image](https://user-images.githubusercontent.com/101916476/159160939-b6d53d5d-22dc-4098-bfe9-c83fec509254.png)
+
+
 ![image](https://user-images.githubusercontent.com/101916476/159145859-6120f516-d816-4ce7-b5a4-dec94de66dd4.png)
 > [你也可能会问喝饮料有没有作用，比如咖啡、茶或者可乐，对于提高精力有没有帮助？](https://www.dedao.cn/course/article?id=89GEyP73eprvKBPpgvJq2Mb0kRD64d&source=search)
 
