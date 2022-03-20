@@ -200,6 +200,87 @@
 
 所以我的建议是，如果喝咖啡，最好就喝黑咖啡，或者加牛奶，最好不要加糖。如果你实在是喜欢可乐的话，可以喝健怡可乐或者零度可乐，也就是无糖的可乐。
 
+## [茶的分类与功效](https://www.sohu.com/a/453909581_120974622) 
+
+https://cdn.hk01.com/di/media/images/dw/20200414/326785761275940864.png/bQ90vi3t09HCv3MKykNum-559-4DuW6Ojx71uY8e9bk?v=w1280![image](https://user-images.githubusercontent.com/101916476/159145968-1437934e-89af-4fc6-bf87-cd5f2d301408.png)
+
+
+“茶”就是就是那些从茶树上采摘下叶子，经过各种加工处理后的成品；主要分绿（龙井）、红、白、青(乌龙)、黄、黑六种类。
+
+![image](https://user-images.githubusercontent.com/101916476/159145936-ffa4542d-9052-42b3-b8e8-e30cd64113d5.png)
+> 关于茶的分类，目前人们更习惯按茶叶的发酵高低程度划分
+
+绿茶：抗氧化性最好，堪比抗癌药
+
+![image](https://user-images.githubusercontent.com/101916476/159145990-78296470-77bb-478c-8c61-e49c2ad36b08.png)
+![image](https://user-images.githubusercontent.com/101916476/159146002-65e4d791-7bc0-46a9-a572-e0ae51995fe5.png)
+> 代表：西湖龙井、黄山毛峰、洞庭碧螺春、太平猴魁等。
+
+`绿茶性寒，是非发酵茶，也因此它的抗氧化性最好`。绿茶中的儿茶素等多酚类化合物被公认为是绿茶中对健康有益的关键成分，具有多种保健功能，包括预防癌症、改善心血管健康、减肥、防辐射等。
+
+![image](https://user-images.githubusercontent.com/101916476/159146024-9aa85c45-2c88-4eb6-a377-2989ea4cbb07.png)
+> 绿茶还是维生素种类最多、含量最丰富的茶类。从现有的文献报道来看，与其他茶类相比，绿茶的抗癌功效较好。多项研究表明，绿茶能降低乳腺、前列腺、肺、口腔、膀胱、结肠、胃、胰腺等多部位肿瘤发生的机率。
+
+红茶：暖胃养阳，堪比护心药
+
+![image](https://user-images.githubusercontent.com/101916476/159146141-9ec8fe07-b217-44d1-8540-d96195fb28a9.png)
+> 红茶性温，可养阳气。红茶中的茶多酚氧化产物还能够促进人体消化，养胃和胃。
+
+因为是发酵茶，茶多酚在氧化酶的作用下发生酶促氧化反应，含量减少了，所以对胃部的刺激性也随之减小了，特别适合中老年人群、胃寒不适的人饮用。
+
+茶黄素是红茶中最主要的功能性成分。大量医学研究表明，饮用红茶可以同时调节人体动脉中低密度脂蛋白和高密度脂蛋白的含量，从而降低心血管疾病的发生概率。
+
+茶黄素还可抗氧化、抗癌、预防慢性炎症和肥胖。
+
+![image](https://user-images.githubusercontent.com/101916476/159146038-90376253-4137-4e72-bd06-7e94b8ae2a2d.png)
+> 从现有的文献报道来看，与其他茶类相比，一般红茶预防心血管疾病的功效较好。
+
+白茶：解毒退烧、控血糖，堪比降糖药
+
+![image](https://user-images.githubusercontent.com/101916476/159146173-550cacd7-db66-4762-ba5e-6e7a240b73b1.png)
+
+糖尿病病人最适合喝的茶当属白茶，因为白茶所含的茶多酚和茶多糖，这两种控制人体血糖上升的有用物质，比其他种类的茶叶要多。
+
+国外医学研究证明，长期饮用白茶可以显著提高人体内酯酶活性，促进脂肪分解代谢，有效控制胰岛素分泌量，延缓葡萄糖的肠吸收，分解体内血液中多余的糖分，促进血糖平衡。
+
+白茶还有防暑、解毒、治牙痛等作用。尤其是陈年的银针白毫，还可以帮助麻疹患儿退烧，效果甚至比退烧药还要好。
+
+此外，白茶也具有较好的抗辐射效果，在美国和欧洲地区白茶提取物被用于脸部护肤品的开发。
+
+青茶：清热润燥，堪比减肥药
+
+![image](https://user-images.githubusercontent.com/101916476/159146198-126f7ca0-0a4a-469b-b5d0-c93fa42740d8.png)
+
+代表：铁观音、武夷岩茶。
+
+乌龙茶又名青茶，其性平，能清除体内积热，特别适合夏秋两季饮用，可缓解夏干秋燥。
+
+陈年的乌龙茶，会出现令人愉悦的果酸，有疏肝理气的功效。
+
+![image](https://user-images.githubusercontent.com/101916476/159146219-b02981e4-a977-43e3-a350-d1281d28ad12.png)
+> 从一些相关的文献报道来看，与其他茶类相比，乌龙茶在减肥方面效果较好。
+
+黄茶：提神醒脑，消除疲劳，消食化滞
+
+代表:君山银针、蒙顶黄芽、北港毛尖、远安黄茶、霍山黄芽、沩江白毛尖、平阳黄汤、皖西黄大茶、广东大叶青、海马宫茶等。
+
+黄茶中富含茶多酚、氨基酸、可溶糖、维生素等丰富营养物质，对防治食道癌有明显功效。此外，黄茶鲜叶中天然物质保留有85%以上，而这些物质对防癌、抗癌、杀菌、消炎均有特殊效果，为其他茶叶所不及。
+
+![image](https://user-images.githubusercontent.com/101916476/159146244-64486c56-42cc-42a2-93e8-cc61b7cf188c.png)
+> 黄茶是沤茶，在沤的过程中，会产生大量的消化酶，对脾胃最有好处，消化不良，食欲不振、懒动肥胖、都可饮而化之。
+
+黑茶：降脂祛寒，堪比阿司匹林
+
+![image](https://user-images.githubusercontent.com/101916476/159146282-8643942b-f966-4566-808e-91aeb491777c.png)
+> [《普洱茶》第一集 茶与云南 CCTV纪录](https://www.youtube.com/watch?v=K7TazKLNudM)
+
+代表：云南普洱茶、湖南茯砖茶、广西六堡茶、湖北青砖茶以及四川边茶等。
+
+很多人只知道保护心脑血管要喝绿茶，但是却不知道绿茶性寒，而很多中老年朋友多少都有些阳虚，所以如果再长久喝绿茶又不注意补阳的话，很容易顾此失彼，对身体健康造成不良影响。
+
+![image](https://user-images.githubusercontent.com/101916476/159146323-75e802d8-4612-44f9-8bab-403a7514fe4a.png)
+> 和绿茶相比，黑茶不仅可以降脂、保护心血管，还可以祛寒护胃。
+
 ## 喜茶
 
 ![image](https://user-images.githubusercontent.com/101916476/159144333-97696e7e-352d-4f4e-a63c-082b011c4021.png)
@@ -260,15 +341,12 @@
 
 所以说，你可别小看这一杯奶茶，它的演变不断经历了传播、改造、本土化加工等一系列的过程。是经过了历史上不断的改良，才成为今天地球村的产物。这杯看似不起眼的奶茶，其实正体现了不同民族文化对“品茶”理念的不断创新与追求。
 
-https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.paragon.com.sg%2Fstores%2Fstarbucks&psig=AOvVaw3VmZYHc7EnSwfGcOaUgTbC&ust=1647830453206000&source=images&cd=vfe&ved=0CAsQjRxqFwoTCMCR7_nU0_YCFQAAAAAdAAAAABAD![image](https://user-images.githubusercontent.com/101916476/159145682-b1b7d43e-f5c6-44be-ba95-f23a48242ea1.png)
-
+![image](https://user-images.githubusercontent.com/101916476/159145682-b1b7d43e-f5c6-44be-ba95-f23a48242ea1.png)
 ![image](https://user-images.githubusercontent.com/101916476/159145667-f436f580-71ab-450d-afdb-635584031081.png)
 > [这个大副的名字叫Starbuck，喝这个咖啡的人叫Starbucks](https://www.dedao.cn/course/article?id=W32axR8enbzBJ95ZzJkDEgM6ApPl9Y&source=search)
 
 ![image](https://user-images.githubusercontent.com/101916476/159145751-1cbdda3b-4ae4-451f-a6cd-8c75fe177f86.png)
 > 美国有一部小说叫[《白鲸记》](https://book.douban.com/subject/10538462/)，美国的伟大作家海明威认为他是美国最伟大的小说家——麦尔维尔的一部小说。那里头有一个大副，我们说每遇大事有静气，他是每遇大事喝咖啡，他遇到特别危险、特别复杂问题的时候，他会在甲板上静静地喝一杯咖啡，然后站起来——“主意有了”。
-
-
 
 ## [不如吃茶去：林清玄的“茶乐道”与人间值得](https://www.dedao.cn/ebook/reader?id=lxaVvndNG6D4kgLJ2OKxqVMmE1zXPwVvZ8wAdjyQeYR75vbaBnr9ol8pZERLg1my) 
 
